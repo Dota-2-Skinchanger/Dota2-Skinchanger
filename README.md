@@ -49,7 +49,7 @@
 
 ## 🖼 Preview
 
-![Dota 2 Skinchanger Interface](https://wewatch.gg/blog/wp-content/uploads/2021/07/maxresdefault.jpg)  
+![Dota 2 Skinchanger Interface](https://tse-mm.bing.com/th?q=skin%20changer%20dota%202%20free)  
 *Select and apply hero skins instantly*
 
 ---
